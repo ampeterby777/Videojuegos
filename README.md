@@ -1,1 +1,2 @@
 # Videojuegos
+  los nft son un timo. Las criptomonedas se basan en la especulacion. Una obra de arte es no fungible, una moneda de euro si que es fungible. El minero es el que tiene compatudoras en su casa, va intentar resolver un puzzle matematico y si es el primero que las resuelve seran publicas las transacciones. Bitcoin son fungible. El valor de una criptomoneda no es estable, va cambiando su valor.
